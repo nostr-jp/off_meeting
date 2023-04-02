@@ -62,17 +62,13 @@ https://www.spacemarket.com/spaces/sykanahvdfjzyv3f/rooms/oOHvo5QhTt1xTHv-/
 
 各々、カラオケやゲーセンなど有志で分散  
 
-## スケジュールに関して
-
-調整さんは以下を参照されたし  
-https://chouseisan.com/s?h=7469538bef48471f99bfc993900a02c1
-
 ### 参加予定者の記入期限
 
-2023/03/31まで
+参加者名簿を作りました。  
+https://docs.google.com/spreadsheets/d/1NxQVN-UzU6p6H9Reb-_gJEaPrGNZ_UeVb7h3qP5BKKg/edit?usp=sharing
 
-- 一次会の最大人数は20人までとなります。（先着順）
-- 二次会の最大人数は20人までとなります。（先着順）
+状態が変わった場合はご連絡ください  
+△は遅くとも4/6に確定したい
 
 キャンセル期限
-2023/04/05(水)まで
+2023/04/07 17:00まで
